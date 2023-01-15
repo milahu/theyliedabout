@@ -1,0 +1,11 @@
+# Police
+
+## New York Exposed by Daniel Czitrom
+
+<https://www.goodreads.com/book/show/26891229-new-york-exposed>
+
+The Police Scandal That Shocked the Nation and Launched the Progressive Era
+
+On a Sunday in early 1892, Reverend Dr. Charles H. Parkhurst took to his pulpit at the Madison Square Presbyterian Church and delivered a fire-breathing denunciation of life in America's greatest city. New York had gone to the dogs. Observing for years the effects of venereal disease, alcoholism, and rampant gambling among the city's residents, including his own parishioners, he had had enough. The city's municipal life he declared to be "hot-bed of knavery, debauchery, and bestiality," one, moreover, controlled by "polluted harpies feeding day and night on its quivering vitals"--in other words, city officials and the police. When those officials in turn denounced Parkhurst as a "blatherskite" with no evidence to back his claims, the sermon seemed doomed to be remembered as no more than a quixotic outburst.
+Undismayed, Parkhurst resolved to tour New York's underworld himself to collect proof of his accusations. Disguised as an out-of-towner, he visited saloons, brothels, and drug dens, in both the poorest and most fashionable areas of the city, often noting uniformed policemen among the clientele. Parkhurst presented this evidence in a series of sermons that captivated city residents and the press alike. What had begun as a screed became a crusade, one that went at the political heart of the nation's greatest and most politically important metropolis. Two years later, it led the State Senate to launch the Lexow Committee, whose comprehensive investigation-including testimonies from nearly 700 witnesses-exposed the dark underside of New York's vice economy and the police force's complicity in it, effectively launching the Progressive movement.
+Animated by a vivid cast of characters, ranging from the bosses of Tammany Hall to prostitutes and counterfeiters to the do-gooders determined to change business as usual, Daniel Czitrom's New York Exposed offers an unforgettable portrait of a formative moment, when muckraking journalism and urban reform were beginning to alter the American social and political landscape. (less)
